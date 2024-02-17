@@ -3,7 +3,6 @@
 
 
 - 🔭 I'm currently studying at Université Côte d'Azur (France)
-- 📫 How to reach me: wanounouilan@gmail.com  - https://ilanwanounou.fr/
 <p align="left">
 </p>
 
